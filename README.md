@@ -1,0 +1,1 @@
+# kmproperties-mallorca
